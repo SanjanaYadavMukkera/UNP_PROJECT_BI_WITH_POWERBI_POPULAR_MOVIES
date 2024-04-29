@@ -6,4 +6,4 @@ PPT -  https://drive.google.com/file/d/1b8oHJT2dK4RN2JruOAJwYNceJEfeXgrb/view?us
 
 pbix - https://drive.google.com/file/d/1XxRGh75bfR5FL4Vd4qMHb7aKoKtdBhRh/view?usp=sharing
 
-pdf -   https://drive.google.com/file/d/1G3gHOyjgsS6vE0n0bqas0Lccmm-Hmy8S/view?usp=sharing
+pdf -   https://drive.google.com/file/d/1ywK8WZuqjCRPqsminE4ICZZ0uWnZO1Dm/view?usp=sharing
